@@ -1,0 +1,2 @@
+# Humoyun-
+Humoyunning loyiha ishi 
